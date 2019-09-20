@@ -1,3 +1,1 @@
-# Translator-of-XKN
-# Translator-of-XKN
-# -
+这里要写啥呀，我菜的一批
